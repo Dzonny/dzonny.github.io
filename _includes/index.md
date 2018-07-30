@@ -1,6 +1,7 @@
-![edgurgel](public/dzontra.jpg)
+![dzontranikola](public/dzontra.jpg)
 
 Geek, cyber freak, running addict.
+
 Director [@valjevskipolumaraton.com](http://valjevskipolumaraton.com/), owner [@samo-opusteno.info](http://samo-opusteno.info/), [@itcybercop.com](http://itcybercop.com/) and [@varatonac.info](http://varatonac.info).
 
 ## Links

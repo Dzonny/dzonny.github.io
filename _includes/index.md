@@ -8,7 +8,7 @@ IT Assistant [@bosis.rs](https://bosis.rs), Localizer [@smf](http://simplemachin
 
 ## Links
 
-My [instagram](https://www.instagram.com/dzontra), [github](https://github.com/Dzonny/), [facebook](https://sr-rs.facebook.com/dzontra.nikola) and [strava profile](https://www.strava.com/athletes/20977202)!
+My [instagram](https://www.instagram.com/dzontra), [github](https://github.com/Dzonny/), [facebook](https://sr-rs.facebook.com/dzontra.nikola), [pinterest](https://www.pinterest.com/nightmaster/) and [strava profile](https://www.strava.com/athletes/20977202)!
 
 
 ## Contact

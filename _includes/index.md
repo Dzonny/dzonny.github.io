@@ -1,4 +1,4 @@
-![dzontranikola](public/dzontra.jpg)
+![Nikola Novakovic](public/dzontra.jpg)
 
 Geek, cyber freak, running addict.
 

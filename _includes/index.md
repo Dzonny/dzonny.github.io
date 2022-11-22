@@ -8,7 +8,7 @@ IT Assistant [@bosis.rs](https://bosis.rs), Localizer [@smf](http://simplemachin
 
 ## Links
 
-My [instagram](https://www.instagram.com/dzontra_nikola/), [github](https://github.com/Dzonny/), [facebook](https://sr-rs.facebook.com/dzontra.nikola), [pinterest](https://www.pinterest.com/nightmaster/) and [strava profile](https://www.strava.com/athletes/20977202)!
+My [instagram](https://www.instagram.com/dzontra_nikola/), [LinkedIn](https://www.linkedin.com/in/dzontranikola/), [UpWork](https://www.upwork.com/o/profiles/users/~017fd33033c8c49065/), [GoodReads](https://www.goodreads.com/user/show/7208251-nikola), [WhatsApp](https://wa.me/381643959543), [github](https://github.com/Dzonny/), [facebook](https://sr-rs.facebook.com/dzontra.nikola), [pinterest](https://www.pinterest.com/dzontranikola/) and [strava profile](https://www.strava.com/athletes/20977202)!
 
 My website: [nikolanovakovic.net](https://nikolanovakovic.net/)
 

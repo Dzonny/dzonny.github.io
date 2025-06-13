@@ -2,9 +2,9 @@
 
 Geek, cyber freak, running addict.
 
-Director [@valjevskipolumaraton.com](http://valjevskipolumaraton.com/), owner [@samo-opusteno.info](http://samo-opusteno.info/), [@itcybercop.com](http://itcybercop.com/) and [@varatonac.info](http://varatonac.info).
+Director [@valjevskipolumaraton.com](http://valjevskipolumaraton.com/).
 
-IT Assistant [@bosis.rs](https://bosis.rs), Localizer [@smf](http://simplemachines.org).
+HR Business Partner [@DS Smith](https://www.dssmith.com/), Localizer [@smf](http://simplemachines.org).
 
 ## Links
 
